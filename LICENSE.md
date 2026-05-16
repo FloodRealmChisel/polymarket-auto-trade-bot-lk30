@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with smart Polymarket Module | portfolio-optimization + market-making, the #1 module. Includes portfolio-optimization and market-making for a
 
 
 
